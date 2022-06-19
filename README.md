@@ -1,4 +1,4 @@
 # demo
 
 
-READ alot about it
+READ alot about these things
